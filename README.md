@@ -5,7 +5,7 @@
 <p align="center"> logan or mafioso. any prns. 16 </p>
 
 <div align="center">
-<img src="https://ik.imagekit.io/zrgresdqq/Untitled1259.png" alt="image" />
+<img src="https://files.catbox.moe/rj8bu2.png" alt="image" />
 </div>
 
 </p>
