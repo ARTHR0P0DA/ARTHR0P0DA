@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://ik.imagekit.io/zrgresdqq/Untitled1260.png" alt="image" />
+<img src="https://files.catbox.moe/dwf5qk.png" alt="image" />
 </div>
 
 <p align="center"> logan or mafioso. any prns. 16 </p>
