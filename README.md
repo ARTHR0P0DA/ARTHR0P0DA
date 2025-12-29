@@ -16,5 +16,5 @@
 </p>
 
 <div align="center">
-<img src="https://ik.imagekit.io/zrgresdqq/Untitled1261.png" alt="image" />
+<img src="https://files.catbox.moe/3iouz0.png" alt="image" />
 </div>
