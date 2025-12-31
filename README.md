@@ -10,7 +10,7 @@
 
 </p>
 <p align="center">
-  <a href="https://arthr0p0da.straw.page/">strawpage</a> ⠀
+  <a href="https://shrimpson.straw.page/">strawpage</a> ⠀
   <a href="https://labsenct.atabook.org/">atabook</a> ⠀
 </p>
 
