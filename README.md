@@ -2,7 +2,7 @@
 <img src="https://files.catbox.moe/dwf5qk.png" alt="image" />
 </div>
 
-<p align="center"> logan or fio. any prns. 16 </p>
+<p align="center"> logan or finn. any prns. 16 </p>
 
 <div align="center">
 <img src="https://files.catbox.moe/rj8bu2.png" alt="image" />
