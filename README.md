@@ -1,12 +1,8 @@
-<div align="center">
-<img src="https://files.catbox.moe/dwf5qk.png" alt="topborder" />
-</div>
-
-<p align="center"> welcome!  </p>
-<p align="center"> thank you for checkin out my page, mind signing my atabook? </p>
+<p align="center"> very asocial and shy, also bad depression, so late replies a lot.  </p>
+<p align="center"> i dont like qwel, i wish the staff and victims to be safe. </p>
 
 <div align="center">
-<img src="https://files.catbox.moe/p01rdn.png" alt="graphic" />
+<img src="https://files.catbox.moe/d80sv8.webp" alt="poop" />
 </div>
 
 </p>
