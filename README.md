@@ -7,7 +7,7 @@
 
 </p>
 <p align="center">
-  <a href="https://finnagan.carrd.co/">carrd</a> ⠀
+  <a href="https://disuacarded.carrd.co/">carrd</a> ⠀
   <a href="https://labsenct.atabook.org/">atabook</a> ⠀
 </p>
 
