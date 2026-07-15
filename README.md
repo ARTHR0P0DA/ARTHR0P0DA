@@ -1,8 +1,8 @@
-<p align="center"> very asocial and shy, also bad depression, so late replies a lot.  </p>
-<p align="center"> i dont like qwel, i wish the staff and victims to be safe. </p>
+<p align="center"> logan 6teen audhd </p>
+<p align="center"> intj-t 5w4 sp5 </p>
 
 <div align="center">
-<img src="https://files.catbox.moe/d80sv8.webp" alt="poop" />
+<img src="https://ik.imagekit.io/ctyynkgxa/dd33bb798ed5723d8eb64a68afc360c9.gif" alt="poop" />
 </div>
 
 </p>
@@ -10,7 +10,3 @@
   <a href="https://disuacarded.carrd.co/">carrd</a> ⠀
   <a href="https://labsenct.atabook.org/">atabook</a> ⠀
 </p>
-
-<div align="center">
-<img src="https://files.catbox.moe/3iouz0.png" alt="bottomborder" />
-</div>
